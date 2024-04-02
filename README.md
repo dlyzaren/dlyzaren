@@ -1,3 +1,3 @@
-![MasterHead](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRYC7yZiokhaReC1puG6H1oLzTqQCXEA0pdZJxfwjfsIQ&s) 
+![MasterHead](https://s3.getstickerpack.com/storage/uploads/sticker-pack/sad-cat-bois/sticker_3.webp?4278a393d9b1e37ea594248bbbfa7d89&d=200x200) 
 ![](https://komarev.com/ghpvc/?username=dlyzaren&color=yellow)
 
